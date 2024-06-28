@@ -1,5 +1,5 @@
 ---
-title: About the Cinderpeaks
+title: The Cinderpeaks
 draft: false
 tags:
   - example-tag
