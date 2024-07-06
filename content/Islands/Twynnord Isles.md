@@ -12,7 +12,7 @@ The flora is not very diverse; it has some hearty plants, mostly roots, bushes a
 
 The left island is home to most of the population; mostly fishermen, a few artisans who settled for special materials that can be obtained from the rightland without braving the mainland's icebound.
 
-A lot of travellers come through, on recommendation of the [[Daiji Monastery]], all of them looking for gear from the legendary blacksmith clan of [[The Hammerherd|The Hammerherd]]. A group of highly skilled blacksmith who travel across the lands but are known to stay for extended, irregular period of time on the leftland. Its proximity to the icebound means you can get both materials that are endemic to the places without the risk of major casualty; which means better prices.
+A lot of travellers come through, on recommendation of the [[Danji Monastery]], all of them looking for gear from the legendary blacksmith clan of [[The Hammerherd|The Hammerherd]]. A group of highly skilled blacksmith who travel across the lands but are known to stay for extended, irregular period of time on the leftland. Its proximity to the icebound means you can get both materials that are endemic to the places without the risk of major casualty; which means better prices.
 
 ***Notable Myth***
 

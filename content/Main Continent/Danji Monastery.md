@@ -2,5 +2,8 @@
 title: Daiji Monastery
 draft: false
 tags:
-  - example-tag
+  - danji
+  - monastery
+  - POI
+  - City
 ---
