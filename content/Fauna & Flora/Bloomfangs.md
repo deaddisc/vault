@@ -20,3 +20,4 @@ Many years later, the wealthy merchant house of Valen found a bountiful litter o
 
 House Valen, claimed the beasts as their own and tamed them, tending to thorns and fury alike, employing both beast masters and gardeners, they achieved what the druids could not- Deadly, beautiful and loyal beasts. From henceforth, the Bloomfang became the sigil of the house, which eventually rose to nobility, renaming themselves in the honour of their pride and power; Valenthorn.
 
+![[Adult Male Bloomfang.png]]
